@@ -1,2 +1,2 @@
-# celinaguzman.github.io
-Online Portfolio / Resume
+# celinamguzman.github.io
+Celina Guzman - Online Portfolio and Resume
